@@ -1,1 +1,1 @@
-https://earnill.github.io/rsschool-cv/
+https://earn1ll.github.io/rsschool-cv/
